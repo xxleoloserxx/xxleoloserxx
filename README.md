@@ -9,4 +9,4 @@
 ![IMG_5475](https://github.com/user-attachments/assets/dcb581b3-1358-4ecf-bb48-c8b2bf41aad9)
 
 
-<sub>w2i, pssibly slow responses, try not to cover ^-^</sub>
+<sub>w2i, pssibly slow responses, try not to cover unless i sit behing u pls ^-^</sub>
