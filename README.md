@@ -1,5 +1,6 @@
 𝚑𝚒𝚒!! 𝚞 𝚌𝚊𝚗 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚕𝚎𝚘!!
-<img width="860" height="700" alt="Untitled367_20250914121615" src="https://github.com/user-attachments/assets/89a58e7a-bdc0-4835-93c0-432e3c0b13f1" />
+<img width="880" height="600" alt="Untitled369_20250914192024" src="https://github.com/user-attachments/assets/f10c754c-5d5f-4507-a3e8-3affbf932d2c" />
+
 
 ![ezgif com-crop](https://github.com/user-attachments/assets/702f1ff3-6344-4991-be46-0cfbae85842e) ![IMG_5450](https://github.com/user-attachments/assets/5eb72d36-a03b-4964-9e83-676a73776fae) ![IMG_5455](https://github.com/user-attachments/assets/361159ae-d0a7-4073-9c15-466eeb0373c9) ![IMG_5477](https://github.com/user-attachments/assets/1314b9fe-9582-42ba-b834-73635518a083)
 ![IMG_5468](https://github.com/user-attachments/assets/a1843752-ae9e-49f1-8bc5-baf56d4b96dc)
