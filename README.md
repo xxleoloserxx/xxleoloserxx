@@ -9,6 +9,6 @@
 
 <sub>w2i, possibly slow responses, try not to cover pls ^-^</sub>
 
-[strawpage](https://shinnningstarzleo.straw.page) [pronouns page](https://en.pronouns.page/@xxleoloserxx) [ata](https://xxleoloserxx.atabook.org/?page=1)
+✰ [strawpage](https://shinnningstarzleo.straw.page) ✰ [pronouns page](https://en.pronouns.page/@xxleoloserxx) ✰ [ata](https://xxleoloserxx.atabook.org/?page=1) ✰
 
 <sub>this was made for ponytown</sub>
