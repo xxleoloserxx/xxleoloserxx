@@ -9,6 +9,6 @@
 
 <sub>w2i, possibly slow responses, try not to cover pls ^-^</sub>
 
-[strawpage(https://shinnningstarzleo.straw.page)]
+[strawpage](https://shinnningstarzleo.straw.page)
 
 <sub>this was made for ponytown</sub>
