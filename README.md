@@ -7,7 +7,8 @@
 ![IMG_5463](https://github.com/user-attachments/assets/298ff9cb-bd3c-465b-9578-24da96531d61)
 ![IMG_5475](https://github.com/user-attachments/assets/dcb581b3-1358-4ecf-bb48-c8b2bf41aad9)
 
-
 <sub>w2i, possibly slow responses, try not to cover pls ^-^</sub>
+
+[strawpage(https://shinnningstarzleo.straw.page)]
 
 <sub>this was made for ponytown</sub>
