@@ -1,7 +1,8 @@
-𝚑𝚒𝚒!! 𝚞 𝚌𝚊𝚗 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚕𝚎𝚘!!
+**𝚑𝚒𝚒!! 𝚞 𝚌𝚊𝚗 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚕𝚎𝚘!!**
+---
 <img width="880" height="600" alt="Untitled369_20250914192024" src="https://github.com/user-attachments/assets/f10c754c-5d5f-4507-a3e8-3affbf932d2c" />
 
-
+---
 ![ezgif com-crop](https://github.com/user-attachments/assets/702f1ff3-6344-4991-be46-0cfbae85842e) ![IMG_5450](https://github.com/user-attachments/assets/5eb72d36-a03b-4964-9e83-676a73776fae) 
 ![IMG_5468](https://github.com/user-attachments/assets/a1843752-ae9e-49f1-8bc5-baf56d4b96dc)
 ![IMG_5464](https://github.com/user-attachments/assets/6e247084-3c88-4e00-8706-43454b0ce35d)
