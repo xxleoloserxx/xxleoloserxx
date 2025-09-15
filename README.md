@@ -13,6 +13,6 @@
 
 <sub>𝚠2𝚒, 𝚙𝚘𝚜𝚜𝚒𝚋𝚕𝚢 𝚜𝚕𝚘𝚠 𝚛𝚎𝚜𝚙𝚘𝚗𝚜𝚎𝚜, 𝚝𝚛𝚢 𝚗𝚘𝚝 𝚝𝚘 𝚌𝚘𝚟𝚎𝚛 𝚙𝚕𝚜 ^-^</sub>
 
-✰ [strawpage](https://shinnningstarzleo.straw.page) ✰ [pronouns page](https://en.pronouns.page/@xxleoloserxx) ✰ [ata](https://xxleoloserxx.atabook.org/?page=1) ✰
+✰ [strawpage](https://shinnningstarzleo.straw.page) ✰ [ata](https://xxleoloserxx.atabook.org/?page=1) ✰ [pronouns page](https://en.pronouns.page/@xxleoloserxx) ✰
 
 <sub>𝚝𝚑𝚒𝚜 𝚠𝚊𝚜 𝚖𝚊𝚍𝚎 𝚏𝚘𝚛 𝚙𝚘𝚗𝚢𝚝𝚘𝚠𝚗</sub>
