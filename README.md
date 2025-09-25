@@ -11,6 +11,8 @@
 ![IMG_5455](https://github.com/user-attachments/assets/361159ae-d0a7-4073-9c15-466eeb0373c9)
 ![IMG_5477](https://github.com/user-attachments/assets/1314b9fe-9582-42ba-b834-73635518a083)
 
+𝙸 𝙷𝙰𝚅𝙴 𝙵𝚁𝙸𝙴𝙽𝙳 𝚁𝙴𝚀𝚄𝙴𝚂𝚃𝚂 𝙾𝙵𝙵!! 𝙰𝚂𝙺 𝙼𝙴 𝚃𝙾 𝙰𝙳𝙳 𝚄 𝙸𝙵 𝚄 𝚆𝙰𝙽𝚃 𝚃𝙾 𝙱𝙴 𝙵𝚁𝙸𝙴𝙽𝙳𝚂!!
+
 <sub>𝚠2𝚒, 𝚙𝚘𝚜𝚜𝚒𝚋𝚕𝚢 𝚜𝚕𝚘𝚠 𝚛𝚎𝚜𝚙𝚘𝚗𝚜𝚎𝚜, 𝚝𝚛𝚢 𝚗𝚘𝚝 𝚝𝚘 𝚌𝚘𝚟𝚎𝚛 𝚙𝚕𝚜 ^-^</sub>
 
 ✰ [strawpage](https://shinnningstarzleo.straw.page) ✰ [ata](https://xxleoloserxx.atabook.org/?page=1) ✰ [pronouns page](https://en.pronouns.page/@xxleoloserxx) ✰
