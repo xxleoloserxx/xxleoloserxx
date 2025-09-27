@@ -13,6 +13,8 @@
 
 𝙸 𝙷𝙰𝚅𝙴 𝙵𝚁𝙸𝙴𝙽𝙳 𝚁𝙴𝚀𝚄𝙴𝚂𝚃𝚂 𝙾𝙵𝙵!! 𝙰𝚂𝙺 𝙼𝙴 𝚃𝙾 𝙰𝙳𝙳 𝚄 𝙸𝙵 𝚄 𝚆𝙰𝙽𝚃 𝚃𝙾 𝙱𝙴 𝙾𝙽 𝙼𝚈 𝙵𝚁𝙸𝙴𝙽𝙳𝚂 𝙻𝙸𝚂𝚃!!
 
+18 𝚢𝚛𝚜 𝚍𝚗𝚒 𝚒𝚏 𝚞𝚗𝚍𝚎𝚛 15
+
 <sub>𝚠2𝚒, 𝚙𝚘𝚜𝚜𝚒𝚋𝚕𝚢 𝚜𝚕𝚘𝚠 𝚛𝚎𝚜𝚙𝚘𝚗𝚜𝚎𝚜, 𝚝𝚛𝚢 𝚗𝚘𝚝 𝚝𝚘 𝚌𝚘𝚟𝚎𝚛 𝚙𝚕𝚜 ^-^</sub>
 
 ✰ [𝓈𝓉𝓇𝒶𝓌𝓅𝒶𝑔𝑒](https://shinnningstarzleo.straw.page) ✰ [𝒶𝓉𝒶](https://xxleoloserxx.atabook.org/?page=1) ✰ [𝓅𝓇𝑜𝓃𝑜𝓊𝓃𝓈 𝓅𝒶𝑔𝑒](https://en.pronouns.page/@xxleoloserxx) ✰
