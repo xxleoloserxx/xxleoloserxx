@@ -17,6 +17,6 @@
 
 <sub>𝚠2𝚒, 𝚙𝚘𝚜𝚜𝚒𝚋𝚕𝚢 𝚜𝚕𝚘𝚠 𝚛𝚎𝚜𝚙𝚘𝚗𝚜𝚎𝚜, 𝚝𝚛𝚢 𝚗𝚘𝚝 𝚝𝚘 𝚌𝚘𝚟𝚎𝚛 𝚙𝚕𝚜 ^-^</sub>
 
-✰ [𝓈𝓉𝓇𝒶𝓌𝓅𝒶𝑔𝑒](https://shinnningstarzleo.straw.page) ✰ [𝒶𝓉𝒶](https://xxleoloserxx.atabook.org/?page=1) ✰ [𝓅𝓇𝑜𝓃𝑜𝓊𝓃𝓈 𝓅𝒶𝑔𝑒](https://en.pronouns.page/@xxleoloserxx) ✰
+✰ [𝓈𝓉𝓇𝒶𝓌𝓅𝒶𝑔𝑒](https://shinyleo.straw.page) ✰ [𝒶𝓉𝒶](https://xxleoloserxx.atabook.org/?page=1) ✰ [𝓅𝓇𝑜𝓃𝑜𝓊𝓃𝓈 𝓅𝒶𝑔𝑒](https://en.pronouns.page/@xxleoloserxx) ✰
 
 <sub>𝚝𝚑𝚒𝚜 𝚠𝚊𝚜 𝚖𝚊𝚍𝚎 𝚏𝚘𝚛 𝚙𝚘𝚗𝚢𝚝𝚘𝚠𝚗</sub>
