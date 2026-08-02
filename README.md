@@ -12,4 +12,4 @@
 
 <p align="center">-ˋˏ ༻❁༺ ˎˊ-</p>
 
-![meow](https://cdn.phototourl.com/free/2026-08-02-53a7f4c1-f172-4b39-a4be-56860215a6dd.png)
+![meow](https://files.catbox.moe/l3f8xu.png)
