@@ -1,4 +1,4 @@
-![boothill](https://files.catbox.moe/7oxztj.png)
+![boothill](https://files.catbox.moe/aselfu.png)
 
 <p align="center">-ˋˏ ༻❁༺ ˎˊ-</p>
 <p align="center">𝓛𝓮𝓸 !! 
