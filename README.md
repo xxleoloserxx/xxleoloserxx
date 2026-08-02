@@ -3,6 +3,8 @@
 <p align="center">-ˋˏ ༻❁༺ ˎˊ-</p>
 <p align="center">𝓛𝓮𝓸 !! 
 𝓮𝔂/𝔁𝓮/𝓼𝓽𝓪𝓻</p>
+<p align="center">𝓪𝓻𝓸𝓪𝓬𝓮 ✮ 𝓰𝓮𝓷𝓭𝓮𝓻𝓯𝓵𝓾𝓲𝓭 ✮ 𝓽𝓻𝓪𝓷𝓼𝓶𝓪𝓼𝓬</p>
+<p align="center">── ⋆⋅𖤓⋅⋆ ──</p>
 <p align="center">𝓹𝓵𝓪𝓽𝓸𝓷𝓲𝓬 𝓫𝓸𝓸𝓽𝓱𝓲𝓵𝓵 𝓪𝓷𝓭 𝓫𝓪𝓻𝓫𝓻𝓪 𝔂𝓾𝓶𝓮</p>
 <p align="center">── ⋆⋅𖤓⋅⋆ ──</p>
 <p align="center">𝓲𝓷𝓽: 𝓫𝓸𝓸𝓽𝓱𝓲𝓵𝓵 𝓪𝓷𝓭 𝓫𝓪𝓻𝓫𝓪𝓻𝓪 𝓯𝓪𝓷𝓼</p>
