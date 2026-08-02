@@ -10,7 +10,6 @@
 
 <p align="center"><img width="99" height="56" alt="IMG_7168" src="https://github.com/user-attachments/assets/90f597ee-e344-48c9-a4b3-6bd9cf6a2575" /><img width="99" height="56" alt="IMG_7172" src="https://github.com/user-attachments/assets/44e283cc-0927-4722-8b03-1246968b3cee" /></p>
 
-
-
+<p align="center">-ˋˏ ༻❁༺ ˎˊ-</p>
 
 ![meow](https://cdn.phototourl.com/free/2026-08-02-53a7f4c1-f172-4b39-a4be-56860215a6dd.png)
