@@ -13,7 +13,7 @@
 <p align="center">𝓭𝓷𝓲: 𝓫𝓪𝓼𝓲𝓬 𝓭𝓷𝓲, 𝓹𝓻𝓸𝓼𝓱𝓲𝓹, 𝓶𝓪𝓰𝓪/𝓽𝓻𝓾𝓶𝓹 𝓼𝓾𝓹𝓸𝓸𝓻𝓽𝓮𝓻𝓼, 𝔃𝓲𝓸𝓷𝓲𝓼𝓽𝓼, 𝓷𝓸𝓷-𝓼𝓱𝓪𝓻𝓲𝓷𝓰 𝔂𝓾𝓶𝓮𝓼</p>
 <p align="center">𝓲𝓷𝓽𝓮𝓻𝓮𝓼𝓽𝓼: 𝓱𝓼𝓻, 𝔀𝓱𝓪, 𝓽𝓻𝓲𝓰𝓾𝓷, 𝓽𝓶𝓷𝓽, 𝓿𝓸𝓵𝓽𝓻𝓸𝓷:𝓵𝓭</p>
 
-<p align="center"><img width="99" height="56" alt="IMG_7168" src="https://github.com/user-attachments/assets/90f597ee-e344-48c9-a4b3-6bd9cf6a2575" /><img width="99" height="56" alt="IMG_7172" src="https://github.com/user-attachments/assets/44e283cc-0927-4722-8b03-1246968b3cee" /><img width="99" height="56" alt="IMG_7195" src="https://github.com/user-attachments/assets/1bfe3b15-f547-42b2-a6d3-bd388e38422d" />
+<p align="center"><img width="99" height="56" alt="IMG_7265" src="https://github.com/user-attachments/assets/4c1aa10d-a06d-48cf-85d8-b90bb2239758" /><img width="99" height="56" alt="IMG_6440" src="https://github.com/user-attachments/assets/1c451944-95b9-4ae1-b52d-b9f9539ad25a" /><img width="99" height="56" alt="IMG_7264" src="https://github.com/user-attachments/assets/69f5c174-3c41-4a3a-8951-14117ff72ece" />
 </p>
 
 <p align="center">-ˋˏ ༻❁༺ ˎˊ-</p>
