@@ -18,4 +18,4 @@
 
 <p align="center">-ˋˏ ༻❁༺ ˎˊ-</p>
 
-![meow](https://files.catbox.moe/9bls29.png)
+![meow](https://files.catbox.moe/23f2il.png)
