@@ -1,4 +1,4 @@
-![boothill](https://files.catbox.moe/mlykgs.png)
+![boothill](https://files.catbox.moe/zn5kfw.png)
 
 <p align="center">-ˋˏ ༻❁༺ ˎˊ-</p>
 <p align="center">𝓛𝓮𝓸 !! 
@@ -20,4 +20,4 @@
 
 <p align="center">-ˋˏ ༻❁༺ ˎˊ-</p>
 
-![meow](https://files.catbox.moe/23f2il.png)
+![meow](https://files.catbox.moe/yr4wth.png)
