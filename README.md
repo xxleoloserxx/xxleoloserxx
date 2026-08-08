@@ -20,4 +20,4 @@
 
 <p align="center">-ˋˏ ༻❁༺ ˎˊ-</p>
 
-![meow](https://files.catbox.moe/yr4wth.png)
+![meow](https://files.catbox.moe/6p2csr.png)
