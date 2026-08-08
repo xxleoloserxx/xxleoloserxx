@@ -7,12 +7,12 @@
 <p align="center">𝓬+𝓱 𝓯𝓻𝓮𝓮𝓵𝔂 𝓾𝓷𝓵𝓮𝓼𝓼 𝓷𝓪𝓶𝓮 𝓼𝓪𝔂𝓼 𝓭𝓷𝓲𝓾𝓯/𝓭𝓷𝓲𝓾𝓲𝓭</p>
 <p align="center">𝓲𝓷𝓼𝓹𝓸 𝓯𝓻𝓮𝓮𝓵𝔂 𝓫𝓾𝓽 𝓭𝓸𝓷𝓽 𝓬𝓸𝓹𝔂 𝓭𝓲𝓻𝓮𝓬𝓽𝓵𝔂 ^-^</p>
 <p align="center">── ⋆⋅𖤓⋅⋆ ──</p>
-<p align="center">𝓹𝓵𝓪𝓽𝓸𝓷𝓲𝓬 𝓫𝓸𝓸𝓽𝓱𝓲𝓵𝓵 𝔂𝓾𝓶𝓮</p>
+<p align="center">𝓺𝓾𝓮𝓮𝓻𝓹𝓵𝓪𝓽𝓸𝓷𝓲𝓬 𝓫𝓸𝓸𝓽𝓱𝓲𝓵𝓵 𝔂𝓾𝓶𝓮</p>
 <p align="center">── ⋆⋅𖤓⋅⋆ ──</p>
 <p align="center">𝓲𝓷𝓽: 𝓫𝓸𝓸𝓽𝓱𝓲𝓵𝓵, 𝔂𝓪𝓷𝓺𝓲𝓷𝓰, 𝓪𝓷𝓭 𝓫𝓪𝓻𝓫𝓪𝓻𝓪 𝓯𝓪𝓷𝓼</p>
 <p align="center">𝓭𝓷𝓲: 𝓫𝓪𝓼𝓲𝓬 𝓭𝓷𝓲, 𝓹𝓻𝓸𝓼𝓱𝓲𝓹, 𝓶𝓪𝓰𝓪/𝓽𝓻𝓾𝓶𝓹 𝓼𝓾𝓹𝓸𝓸𝓻𝓽𝓮𝓻𝓼, 𝔃𝓲𝓸𝓷𝓲𝓼𝓽𝓼, 𝓷𝓸𝓷-𝓼𝓱𝓪𝓻𝓲𝓷𝓰 𝔂𝓾𝓶𝓮𝓼</p>
 <p align="center">𝓲𝓷𝓽𝓮𝓻𝓮𝓼𝓽𝓼: 𝓱𝓼𝓻, 𝔀𝓱𝓪, 𝓽𝓻𝓲𝓰𝓾𝓷, 𝓽𝓶𝓷𝓽, 𝓿𝓸𝓵𝓽𝓻𝓸𝓷:𝓵𝓭, 𝓼𝓿𝓼𝓼𝓼</p>
-<p align="center"> ✮ 𝓻𝓸𝓫𝓲𝓷𝓱𝓲𝓵𝓵, 𝓻𝓮𝓷𝓱𝓮𝓷𝓰, 𝓿𝓪𝓻𝓮𝓼𝓪 𝓯𝓪𝓷𝓼 𝓭𝓷𝓲𝓾𝓯 𝓹𝓵𝓼 ✮
+<p align="center"> ✮ 𝓻𝓸𝓫𝓲𝓷𝓱𝓲𝓵𝓵 𝓯𝓪𝓷𝓼 𝓭𝓷𝓲𝓾𝓯 𝓹𝓵𝓼 (ᵕ —﹏—) ✮
 
 <p align="center"><img width="99" height="56" alt="IMG_7265" src="https://github.com/user-attachments/assets/4c1aa10d-a06d-48cf-85d8-b90bb2239758" /><img width="99" height="56" alt="IMG_6440" src="https://github.com/user-attachments/assets/1c451944-95b9-4ae1-b52d-b9f9539ad25a" /><img width="99" height="56" alt="IMG_7264" src="https://github.com/user-attachments/assets/69f5c174-3c41-4a3a-8951-14117ff72ece" />
 </p>
