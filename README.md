@@ -4,8 +4,7 @@
     <img width=550" src="https://file.garden/aulL0N_UjR-4kOB4/Untitled108_20261105102929.png" alt="image of water">
 </p>
 
-<p align="center"> ѕᴏғᴛѕʜᴀʀɪɴɢ ғᴀᴍɪʟᴀɪʟ ʙᴀʀʙᴀʀᴀ ʏᴜᴍᴇ!! </p>
-<p align="center"> ᴅᴏᴜʙʟᴇѕ/ғᴀɴѕ ɪɴᴛ </p>
+<p align="center"> ѕᴏғᴛѕʜᴀʀɪɴɢ ғᴀᴍɪʟᴀɪʟ ʙᴀʀʙᴀʀᴀ ʏᴜᴍᴇ!! ᴅᴏᴜʙʟᴇѕ/ғᴀɴѕ ɪɴᴛ </p>
 
 <p align="center"><a href="https://xxleolosrxx.straw.page">strawpage</a></p><p align="center"><a href="https://xxleoloserxx.atabook.org">ata</a></p><p align="center"><a href="https://en.pronouns.page/@xxleoloserxx">prns page</a></p>
 
