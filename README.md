@@ -5,6 +5,7 @@
 </p>
 
 <p align="center"> ѕᴏғᴛѕʜᴀʀɪɴɢ ғᴀᴍɪʟᴀɪʟ ʙᴀʀʙᴀʀᴀ ʏᴜᴍᴇ!! </p>
+<p align="center"> ᴅᴏᴜʙʟᴇѕ/ғᴀɴѕ ɪɴᴛ </p>
 
 <p align="center"><a href="https://xxleolosrxx.straw.page">strawpage</a></p><p align="center"><a href="https://xxleoloserxx.atabook.org">ata</a></p><p align="center"><a href="https://en.pronouns.page/@xxleoloserxx">prns page</a></p>
 
